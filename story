@@ -8,3 +8,4 @@ Suddenly the wise monkey told the crocodile that he left the heart in the tree a
 the crocodile went back to the monkey's tree and monkey escaped from the crocodile.
 
 
+"Morals: intelligence wins over might"
